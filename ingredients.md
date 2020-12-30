@@ -1,8 +1,8 @@
 The ingridients are :
+
     > 1 pound ( 450 grams ) lamb meat
     > 1/2 onion, sliced
     > 2 tablespooons whole cumin seeds
-
     > 2 tablesppons peanut oil
     > 2 tablespoons light soy sauce
     > 2 teaspoons cornstarch
